@@ -1,4 +1,4 @@
-# My Favorite movie
+# My Favorite Movie
 
 **Weathering with you**
 
